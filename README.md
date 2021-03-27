@@ -1,4 +1,7 @@
-### Hi there 👋
+### Hi there 👋 i'm Umidjan
+I'm from Uzbekistan
+Logistics bachelor
+ 🌱 I’m currently learning ...
 
 <!--
 **UmidUbaydullayev/UmidUbaydullayev** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
