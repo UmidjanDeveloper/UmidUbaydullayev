@@ -1,4 +1,4 @@
-Hi i'm UMIDJAN 👋 
+**Hi i'm UMIDJAN 👋** 
 
 -I'm from Uzbekistan!!!
 
