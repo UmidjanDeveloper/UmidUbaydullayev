@@ -4,7 +4,7 @@
 
 -University: Logistics Bachelor :)
 
--🌱 I’m currently learning Coding and ... 
+-🌱## I’m currently learning Coding and ... ##
 
 -📫 How to reach me:
 
