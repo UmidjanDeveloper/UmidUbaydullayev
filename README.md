@@ -8,4 +8,7 @@ Hi i'm UMIDJAN 👋
 
 -📫 How to reach me:
 
-----> GO AHEAD
+----> "Keep Your
+              Head Up
+                 Your Day
+                      Is Coming"***
