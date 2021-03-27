@@ -1,8 +1,10 @@
 **Hi i'm UMIDJAN (❛ ͜ʖ❛)✌👋** 
 
--I'm from Uzbekistan!!!
+-Born in Uzbekistan 👶
 
--University: Logistics Bachelor(͡• ʖ•)
+Living In Poland 🏃🏻
+
+-University: Logistics Bachelor 🎓
 
 -🌱I’m currently learning Coding and ...
 
