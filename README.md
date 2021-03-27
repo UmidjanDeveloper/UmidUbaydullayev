@@ -1,6 +1,6 @@
 Hi i'm UMIDJAN 👋 
 
--I'm from Uzbekistan
+-I'm from Uzbekistan :flag_uz: 
 
 -Logistics Bachelor
 
