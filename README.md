@@ -1,4 +1,5 @@
 Hi there 👋 i'm UMIDJAN
+
 -I'm from Uzbekistan
 -Logistics Bachelor
 -🌱 I’m currently learning  
