@@ -1,8 +1,8 @@
-**Hi i'm UMIDJAN 👋** 
+**Hi i'm UMIDJAN (❛ ͜ʖ❛)✌👋** 
 
 -I'm from Uzbekistan!!!
 
--University: Logistics Bachelor :)
+-University: Logistics Bachelor(͡• ʖ•)
 
 -🌱I’m currently learning Coding and ...
 
