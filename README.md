@@ -8,10 +8,4 @@ Hi i'm UMIDJAN 👋
 
 -📫 How to reach me:
 
-----> Motivation "Keep Your
-
-                      Head Up
-              
-                           Your Day
-                 
-                     Is Coming"***
+----> Motivation "**Keep Your Head Up.. Your Day Is Coming**"
