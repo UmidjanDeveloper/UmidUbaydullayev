@@ -6,7 +6,7 @@ Living In Poland 🏃🏻
 
 -University: Logistics Bachelor 🎓
 
--🌱I’m currently learning Coding and ...(❛ ͜ʖ❛)
+-🌱I’m currently learning Coding, Artificial Intelligence, Algebra and Machine Learning 
 
 -📫 How to reach me: https://www.instagram.com/umidjan_zaxiddinovich/
 
