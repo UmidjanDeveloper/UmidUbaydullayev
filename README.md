@@ -4,7 +4,7 @@
 
 -Living In Poland 🏃🏻
 
--University: Logistics Bachelor 🎓
+-University: Logistics Engineering {Bachelor} 🎓
 
 -🌱I’m currently learning Coding, Artificial Intelligence, Algebra and Machine Learning 
     
