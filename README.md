@@ -2,12 +2,12 @@
 
 -Born in Uzbekistan 👶
 
- -Living In Poland 🏃🏻
+-Living In Poland 🏃🏻
 
-  -University: Logistics Bachelor 🎓
+-University: Logistics Bachelor 🎓
 
-    -🌱I’m currently learning Coding, Artificial Intelligence, Algebra and Machine Learning 
+-🌱I’m currently learning Coding, Artificial Intelligence, Algebra and Machine Learning 
+    
+-📫 How to reach me: https://www.instagram.com/umidjan_zaxiddinovich/
 
-        -📫 How to reach me: https://www.instagram.com/umidjan_zaxiddinovich/
-
-             ----> Motivation "**Keep Your Head Up... Your Day Is Coming.....**"
+----> Motivation "**Keep Your Head Up... Your Day Is Coming.....**"
