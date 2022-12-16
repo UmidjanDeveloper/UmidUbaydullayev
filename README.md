@@ -6,7 +6,7 @@
 
 -University: Logistics Engineering {Bachelor} 🎓
 
--🌱I’m currently learning Coding, Artificial Intelligence, Algebra and Machine Learning 
+-🌱I’m currently learning C# fundamentals and Dotnet. 
     
 -📫 How to reach me: https://www.instagram.com/umidjan_zaxiddinovich/
 
