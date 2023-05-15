@@ -1,13 +1,12 @@
-**Hi i'm UMIDJAN ✌** 
+**Hi i'm Umidjan** 
 
--Born in Uzbekistan 👶
+-Born in Uzbekistan 
 
--Living In Poland 🏃🏻
+-Living In Poland 
 
--University: Logistics Engineering {Bachelor} 🎓
+-University: WSB Merito University 🎓
 
--🌱I’m currently learning C# fundamentals and Dotnet. 
+-I’m currently learning C# fundamentals and Dotnet. 
     
--📫 How to reach me: https://www.instagram.com/umidjan_zaxiddinovich/
+-How to reach me: https://www.linkedin.com/in/umidjan-zaxiddinovich-15a54620a
 
-----> Motivation "**Keep Your Head Up... Your Day Is Coming.....**"
