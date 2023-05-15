@@ -1,4 +1,4 @@
-**Hi i'm Umidjan** 
+# Hi i'm Umidjan
 
 -Born in Uzbekistan 
 
