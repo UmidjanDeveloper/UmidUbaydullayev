@@ -14,4 +14,4 @@ Please take a look at my portfolio items in this profile. If you think we would 
 
 I look forward to hearing from you.
 
-[Linkedin](https://www.linkedin.com/in/umidjan-zaxiddinovich-15a54620a) | [Telegram](https://t.me/ZaxiddinovichDev)
+[Linkedin](https://www.linkedin.com/in/umidjan-zaxiddinovich-15a54620a) |                              [Telegram](https://t.me/ZaxiddinovichDev)
